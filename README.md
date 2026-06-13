@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭  BBA Student | Exploring Business Opportunities, <br><br>🤝 I’m looking to collaborate on: Cross-Border Business ventures and E-commerce optimization projects<br><br>💬 Ask me about: Supply Chain Management, Product Hunting, and Business Development<br><br>🌱 I’m currently learning: Supply Chain Data Analytics & Exploring New Business Opportunities<br><br>⚡ Fun fact: A proud cat dad who builds a "Second Brain" to organize life and work!<br><br>🤝 I’m looking to collaborate on: Cross-Border Business ventures and E-commerce optimization projects<br><br>💬 Ask me about: Supply Chain Management, Product Hunting, and Business Development<br><br>🌱 I’m currently learning: Supply Chain Data Analytics & Exploring New Business Opportunities<br><br>⚡ Fun fact: A proud cat dad
+🔭  BBA Student | Exploring Business Opportunities, <br><br>🤝 I’m looking to collaborate on: Cross-Border Business ventures and E-commerce optimization projects<br><br>💬 Ask me about: Supply Chain Management, Product Hunting, and Business Development<br><br>🌱 I’m currently practicing: Supply Chain Data Analytics & Exploring New Business Opportunities<br><br>⚡ Fun fact: A proud cat dad </b>
 
 
 ## 🌐 Socials:
